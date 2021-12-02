@@ -1,0 +1,1 @@
+o curso na gama academy está sendo bom!!
